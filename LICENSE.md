@@ -1,4 +1,4 @@
-# 
+# Get the ultimate TreeSize for PC | TreeSize for Windows module with exclusive TreeSize for PC | TreeSize for Windows Module | network-drive-support + duplicate-detection.
 
 
 
